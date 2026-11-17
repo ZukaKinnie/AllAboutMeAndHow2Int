@@ -34,9 +34,9 @@ Lemme say this right now, if you cosplay or kin Zuka too, I don't mind you at al
 
 
 
-If you kin or cosplay Dignity, please for the love of GOD do not try to do any shipping roleplay with me (Or any shipping at all ofc, don't be weird around me or towards me.) just IWCaution/care bro. Be respectful and mindful of me. (And honestly, this goes for any of my f/o's but especially Dignity.) And keep in mind I'm likely to ignore/hide you, so if you're dressed as Dignity (or other f/o's) and idk you, don't expect me to interact with you at all. It's not an attack on you, so don't take it personally.
+If you kin/cosplay Dignity or yume/selfship with Zuka, please for the love of GOD do not try to do any shipping roleplay with me (Or any shipping at all ofc, don't be weird around me or towards me.) just IWCaution/care bro. Be respectful and mindful of me. (And honestly, this goes for any of my f/o's but especially Dignity.) And keep in mind I'm likely to ignore/hide you, so if you're dressed as Dignity (or other f/o's) and idk you, don't expect me to interact with you at all. It's not an attack on you, so don't take it personally.
 
 
 
 
-I feel like this should be clear enough by now, if I'm cosplaying a character that is very popular with ships, please do not try to do any kind of ship matching shenanigans with me. I save that for ONLY my partner. If i am wearing a character you yume/selfship with, just know I'm not trying to interact with you romantically or anything akin to that, I JUST wanna wear my cosplays in peace.
+I feel like this should be clear enough by now, if I'm cosplaying a character that is very popular with ships (or your f/o), please do not try to do any kind of ship matching shenanigans with me. I save that for ONLY my partner. If i am wearing a character you yume/selfship with, just know I'm not trying to interact with you romantically or anything akin to that, I JUST wanna wear my cosplays in peace.
